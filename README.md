@@ -1,1 +1,1 @@
-My new github id is [Realkai42](https://github.com/RealKai42)
+My new github id is [RealKai42](https://github.com/RealKai42)
